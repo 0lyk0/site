@@ -1,3 +1,6 @@
+### LYKIA FAKE LINK GENERATOR [1.0]
+All the links are below. !SCROLL DOWN TO SEE ALL LINKS!
+
 ## roblox-app.com(OP, OFFICIAL, WORKING)
 [Click To Go Gen](https://roblox-app.com/creates/non-dualhook-generator)
 
