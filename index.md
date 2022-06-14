@@ -30,3 +30,31 @@
 [Click To Go Controller](https://vvvv-robiox.com/controller/login)
 
 [Click To Go Discover](https://vvvv-robiox.com/discover/#/)
+
+## roblox-site.com (OP, OFFICIAL, WORKING)
+[Click To Go Gen](https://roblox-site.com/creates/non-dualhook-generator)
+
+[Click To Go Controller](https://roblox-site.com/controller/login)
+
+[Click To Go Discover](https://roblox-site.com/discover/#/)
+
+## apk-roblox.com (OP, OFFICIAL, WORKING)
+[Click To Go Gen](https://apk-roblox.com/creates/non-dualhook-generator)
+
+[Click To Go Controller](https://apk-roblox.com/controller/login)
+
+[Click To Go Discover](https://apk-roblox.com/discover/#/)
+
+## roblox.sx (OP, OFFICIAL, WORKING)
+[Click To Go Gen](https://roblox.sx/creates/non-dualhook-generator)
+
+[Click To Go Controller](https://roblox.sx/generator/sign-in)
+
+[Click To Go Discover](https://roblox.sx/discover)
+
+## www-robloxa.com (OP, OFFICIAL, WORKING)
+[Click To Go Gen](https://www-robloxa.com/creates?id=non-dualhook)
+
+[Click To Go Controller](https://www-robloxa.com/controller/)
+
+[Click To Go Discover](https://www-robloxa.com/discover#/)
