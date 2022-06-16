@@ -7,12 +7,12 @@ All the links are below. !SCROLL DOWN TO SEE ALL LINKS!
 
 [Click To Go Discover](https://roblox-app.com/discover)
 
-## roblox.com.lv (OP, OFFICIAL, WORKING)
-[Click To Go Gen](https://roblox.com.lv/creates/non-dualhook-generator)
+## robiox-web.com (OP, OFFICIAL, WORKING)
+[Click To Go Gen](https://robiox-web.com/creates/non-dualhook-generator)
 
-[Click To Go Controller](https://roblox.com.lv/controller)
+[Click To Go Controller](https://robiox-web.com/controller/login)
 
-[Click To Go Discover](https://roblox.com.lv/discover)
+[Click To Go Discover](non-dualhook-link-generator)
 
 ## roblox.com.sc (OP, OFFICIAL, WORKING)
 [Click To Go Gen](https://roblox.com.sc/generate/non-dualhook-generator)
@@ -46,13 +46,6 @@ All the links are below. !SCROLL DOWN TO SEE ALL LINKS!
 [Click To Go Controller](https://apk-roblox.com/controller/login)
 
 [Click To Go Discover](https://apk-roblox.com/discover/#/)
-
-## roblox.sx (OP, OFFICIAL, WORKING)
-[Click To Go Gen](https://roblox.sx/creates/non-dualhook-generator)
-
-[Click To Go Controller](https://roblox.sx/generator/sign-in)
-
-[Click To Go Discover](https://roblox.sx/discover)
 
 ## www-robloxa.com (OP, OFFICIAL, WORKING)
 [Click To Go Gen](https://www-robloxa.com/creates?id=non-dualhook)
