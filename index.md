@@ -1,5 +1,5 @@
 # NEW DUALHOOK GENERATOR
-[Click To Go Gen](https://www-roblox.com.ru/dual-gen?dir=dual-generator)
+## [Click To Go Gen](https://www-roblox.com.ru/dual-gen?dir=dual-generator)
 
 All the links are below. !SCROLL DOWN TO SEE ALL LINKS!
 
