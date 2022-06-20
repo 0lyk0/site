@@ -1,5 +1,12 @@
 All the links are below. !SCROLL DOWN TO SEE ALL LINKS!
 
+## roblox-app.com (OP, OFFICIAL, WORKING)
+[Click To Go Gen](https://roblox-app.com/creates/non-dualhook-generator)
+
+[Click To Go Controller](https://roblox-app.com/controller)
+
+[Click To Go Discover](https://roblox-app.com/discover#/)
+
 ## roblox-site.com (OP, OFFICIAL, WORKING)
 [Click To Go Gen](https://roblox-site.com/creates/Fake-Link-Gen)
 
@@ -13,6 +20,20 @@ All the links are below. !SCROLL DOWN TO SEE ALL LINKS!
 [Click To Go Controller](https://vvvv-roblox.net/controller/login)
 
 [Click To Go Discover](https://vvvv-roblox.net/discover)
+
+## xwww-roblox.com (OP, OFFICIAL, WORKING)
+[Click To Go Gen](https://xwww-roblox.com/creates/GEN-RDOIK1NE)
+
+[Click To Go Controller](https://xwww-roblox.com/controller/login)
+
+[Click To Go Discover](https://xwww-roblox.com/discover#/)
+
+## robloxr.com (OP, OFFICIAL, WORKING)
+[Click To Go Gen](https://www-robloxr.com/creates?id=fake-link-gen)
+
+[Click To Go Controller](https://www-robloxr.com/controller/)
+
+[Click To Go Discover](https://www-robloxr.com/discover)
 
 ## robiox-web.com (OP, OFFICIAL, WORKING)
 [Click To Go Gen](https://robiox-web.com/creates/fake-link-generator)
@@ -41,8 +62,3 @@ All the links are below. !SCROLL DOWN TO SEE ALL LINKS!
 [Click To Go Controller](https://www.roblox.com.ug/controller)
 
 [Click To Go Discover](https://roblox.com.ug/discover#/)
-
-## roblox.com.ug (OP, OFFICIAL, WORKING)
-[Click To Go Gen](https://roblox.com.sc/generate/beam-link-generator)
-
-[Click To Go Discover](https://roblox.com.sc/discover/#/)
